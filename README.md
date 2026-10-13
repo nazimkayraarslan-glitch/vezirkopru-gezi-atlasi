@@ -1,0 +1,1 @@
+# vezirkopru-gezi-atlasi
